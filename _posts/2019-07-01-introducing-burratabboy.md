@@ -18,9 +18,7 @@ But, before we go further, you have to understand the criteria by which I judge 
 * Service
 * Ambiance
 * Price
-
-Bonus
-* Creativity
+* Creativity (bonus!)
 
 ### What's next?
 
