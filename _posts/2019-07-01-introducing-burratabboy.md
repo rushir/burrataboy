@@ -24,6 +24,6 @@ Bonus
 
 ### What's next?
 
-Over the next several days I'll be writing up a few reviews of some restaurants I've had the pleasure of eating at in New York. Be on the lookout for: [L'Artusi](https://www.lartusi.com/), [Pasquale Jones](https://www.pasqualejones.com/), and [Maialino](https://maialinonyc.com/).
+Over the next several days I'll be writing up a few reviews of some restaurants I've had the pleasure of eating at in New York. Be on the lookout for reviews of: [L'Artusi](https://www.lartusi.com/), [Pasquale Jones](https://www.pasqualejones.com/), and [Maialino](https://maialinonyc.com/).
 
 Thanks for reading!
