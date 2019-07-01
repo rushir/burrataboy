@@ -3,15 +3,13 @@ layout: post
 title: Introducing burrata boy
 ---
 
-*The Strange Case of Dr. Jekyll and Mr. Hyde* tells the story of a lawyer investigating the connection of two persons, Dr. Henry Jekyll and Mr. Edward Hyde. Chief among the novel's supporting cast is a man by the name of Mr. Poole, Dr. Jekyll's loyal butler.
+Hey there! My name is [Rushir](https://imrushir.com) and I've had a fascination for pasta for a long time. The different shapes, the tastes of sauces and cheeses, the firmness of the noodles. So many things have to come together to form the perfect bowl of pasta. This site can be used in two ways:
+* As an introspective look into what I'm eating
+* A review site, so you know where to eat  
 
------
+Eventually we'll figure out all the criteria that should be used when judging the perfect bowl of pasta, but we'll start with the following:
 
-Poole is the butler for [Jekyll](http://jekyllrb.com), the static site generator. It's designed and developed by [@mdo](https://twitter.com/mdo) to provide a clear and concise foundational setup for any Jekyll site. It does so by furnishing a full vanilla Jekyll install with example templates, pages, posts, and styles.
-
-There are currently two themes built on Poole:
-
-* [Hyde](http://hyde.getpoole.com)
+* Taste
 * [Lanyon](http://lanyon.getpoole.com)
 
 Learn more and contribute on [GitHub](https://github.com/poole).
