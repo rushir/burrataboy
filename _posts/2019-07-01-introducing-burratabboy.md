@@ -5,7 +5,7 @@ title: Introducing burrata boy
 
 Hey there! My name is [Rushir](https://imrushir.com) and I've had a fascination with pasta for a long time. The different shapes, the tastes of sauces and cheeses, the firmness of the noodles. So many things have to come together to form the perfect bowl of pasta. But, to have a good dining experience, not only does the food have to be good; the ambiance does as well, as does the service quality, and so on.
 
-For a while now I've been a fan of [The Infatuation](https://www.theinfatuation.com/)—a review site where writers offer their opinion on where you should eat. This site is essentially the same. Here, I offer you my opinion on where and what to eat. This site can be used in two ways:
+For a while now I've been a fan of [The Infatuation](https://www.theinfatuation.com/)—a review site where writers offer their opinion on where you should eat. This site is essentially the same. Here, I offer you my opinion on where and what to eat—you can use it in two ways:
 * As an introspective look into what I'm eating
 * A review site, so you know where and what to eat  
 
