@@ -25,4 +25,4 @@ This cacio e pepe is really good. Does the noodle remind me a bit of the [maggi]
 ## Gnocchi
 ![gnocchi](/assets/photos/06_30_19_charlie_bird.jpg)
 
-To be completely honest, I don't remember everything that was in here. I do remember eating it outside though on a warm summer day. The gnocchi was firm (tbh, not sure if its supposed to be - I've had gnocchi that was super soft) and the sauce was rich. Every now and then I'd get a bite of pink peppercorn which quite frankly I'm not a huge fan of, but this dish would 100% feel like it was missing something if the peppercorns weren't there.
+To be completely honest, I don't remember everything that was in here. I do remember eating it outside though on a warm summer day. The gnocchi was firm (tbh, not sure if its supposed to be - I've had gnocchi that was super soft) and the sauce was rich. Every now and then I'd get a bite of pink peppercorn which quite frankly I'm not a huge fan of, but this dish would 100% feel like it was missing something if the peppercorns weren't there. Honestly, if there is something else on the menu that strikes your fancy, try that too.
