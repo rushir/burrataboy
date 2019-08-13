@@ -4,7 +4,7 @@ title: Pasquale Jones
 ---
 <em>Written while listening to Magna Carta Holy Grail — Jay-Z</em>
 
-Alright, I lied about having the first post out quickly — but for good reason! I've been pretty busy with work and while I haven't had time to sit down and write, I have had time to eat. So stay tuned for more reviews soon.
+Alright, I lied about having the first post out quickly — so I'm sorry. And while I haven't written much (yet), I have had time to eat. One of the restaurants I've eaten at most recently is [Charlie Bird](https://www.charliebirdnyc.com/), the big brother of Pasquale Jones - but before we get into that, let's see how the younger sibling fairs.
 
 <strong>If I had a restaurant it would probably take a lot of queues from Pasquale Jones. </strong> Allow me to break it down for you: music selections include your favorite New York hip-hop artists, the bathroom soap is from Aesop, they have seats outside, it's located in the heart of Nolita, its close to [my favorite milkshake shop](https://www.milkandcreambar.com/)... and we haven't even gotten to the food yet.
 
