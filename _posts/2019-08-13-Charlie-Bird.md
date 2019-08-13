@@ -5,7 +5,7 @@ title: Charlie Bird
 
 <em>Oh man, oh man, oh man. The cacio e pepe at this place is :chef's kiss:</em>
 
-So in yesterday's [review of Pasquale Jones](https://burrataboy.com/2019/08/12/Pasquale-Jones/), I mentioned it's older brother — [Charlie Bird](https://charliebirdnyc.com/). In many ways its similar to its younger brother, but feels a bit less formal, does away with the pizza, and adds a bit of seafood to the mix.
+So in yesterday's [review of Pasquale Jones](https://burrataboy.com/2019/08/12/Pasquale-Jones/), I mentioned it's older brother — [Charlie Bird](https://charliebirdnyc.com/). In many ways its similar, but feels a bit less formal, does away with the pizza, and adds a bit of seafood to the mix.
 
 Located in SoHo, Charlie Bird is a spot where you'd be just as comfortable sitting at the bar by yourself as you would with a group of friends at one of the tables outside. By the way, I'm not certain of this but I think there is a little mini wood burning stove outside (you can smell the goodness when seated outside).  
 
