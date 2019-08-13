@@ -18,11 +18,11 @@ Located in SoHo, Charlie Bird is a spot where you'd be just as comfortable sitti
 - Creativity: 8/10
 
 ## Tonnarelli Cacio e Pepe
-![tonnarelli](../assets/photos/06_22_19_charlie_bird.jpg)
+![tonnarelli](/assets/photos/06_22_19_charlie_bird.jpg)
 
 This cacio e pepe is really good. Does the noodle remind me a bit of the [maggi](https://www.amazon.com/Maggi-Masala-2-Minute-Noodles-India/dp/B00MXAY92A/ref=sr_1_3?keywords=maggi&qid=1565673034&s=gateway&sr=8-3) I ate growing up? Yes. But that's not stopping me from coming back for seconds. To me, cacio e pepe is one of those dishes that seems really simple, but actually takes a decent amount of effort to get right. The reason being that there is no real "sauce", instead its a perfect combination of pasta water, cheese, and pepper that's required to get the consistency right. These people get it.
 
 ## Gnocchi
-![gnocchi](../assets/photos/06_30_19_charlie_bird.jpg)
+![gnocchi](/assets/photos/06_30_19_charlie_bird.jpg)
 
 To be completely honest, I don't remember everything that was in here. I do remember eating it outside though on a warm summer day. The gnocchi was firm (tbh, not sure if its supposed to be - I've had gnocchi that was super soft) and the sauce was rich. Every now and then I'd get a bite of pink peppercorn which quite frankly I'm not a huge fan of, but this dish would 100% feel like it was missing something if the peppercorns weren't there. Honestly, if there is something else on the menu that strikes your fancy, try that too.
