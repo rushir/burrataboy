@@ -16,10 +16,7 @@ If I had a restaurant it would probably take a lot of queues from Pasquale Jones
 - Price: 8/10
 - Creativity: 8/10
 
-## Little Neck Clam Pizza
-I've never had clam on a pizza, it seems pretty unusual, but its a good combo. Drizzle some of the chili pepper oil on the pizza while its still hot.
-
 ## Tortellini with Morel Mushrooms
 ![tortellini](/assets/photos/04_19_19_pasquale_jones.jpg)
 
-The pasta on the other hand is hard to describe. In a good way. It melts in your mouth. In one bite it has you saying, "wow". It's one of those dishes you eat as slowly as you can to preserve the time you have with it. The pasta noodle itself is perfectly cooked. The ricotta(?) filling is soft and melts away. The mushrooms are slightly salty and have a bit of bite to them. The presentation is beautiful - with edible flowers!
+The tortellini at Pasquale Jones is hard to describe. In a good way. It melts in your mouth. In one bite it has you saying, "wow". It's one of those dishes you eat as slowly as you can to preserve the time you have with it. The pasta noodle itself is perfectly cooked. The ricotta(?) filling is soft and melts away. The mushrooms are slightly salty and have a bit of bite to them. The presentation is beautiful - with edible flowers!
