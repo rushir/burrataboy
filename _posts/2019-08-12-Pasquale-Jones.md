@@ -10,6 +10,6 @@ If I had a restaurant it would probably take a lot of queues from Pasquale Jones
 I've never had clam on a pizza, it seems pretty unusual, but its a good combo. Drizzle some of the chili pepper oil on the pizza while its still hot.
 
 ## Tortellini with Morel Mushrooms
-![tortellini](/_posts/_photos/pasquale_jones_04_19_19.jpg)
+![tortellini](_posts/_photos/pasquale_jones_04_19_19.jpg)
 
 The pasta on the other hand is hard to describe. In a good way. It melts in your mouth. In one bite it has you saying, "wow". It's one of those dishes you eat as slowly as you can to preserve the time you have with it.
